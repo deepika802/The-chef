@@ -6,13 +6,13 @@ TEA IS NOT A DRINK IT'S A EMOTION!!!
 
 INGREDIENTS :-
 
-Water
-grated ginger
-cardamom
-small piece of cinnamon 
-milk
-tea powder
-sugar
+1. Water
+2. Grated ginger
+3. Cardamom
+4. Small piece of cinnamon 
+5. Milk
+6. Tea powder
+7. Sugar
 
 PROCESS:-
 
